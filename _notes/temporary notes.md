@@ -1,0 +1,1 @@
+what is actually temporary notes mentioned in [[Zettelkasten]] ??

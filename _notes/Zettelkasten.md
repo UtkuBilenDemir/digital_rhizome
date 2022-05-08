@@ -1,0 +1,1 @@
+- [ ] I am trying to learn Zettelkasten but I'm not sure if I'm doing it correctly, let's read some sources before bed
